@@ -1,2 +1,5 @@
-# drive-zone-online-cheats-credits-hacks
-Drive Zone Online cheats for credits and 1000 DZO-points Hacks guide
+# Drive Zone Online cheats for credits and 1000 DZO-points Hacks guide
+
+Drive Zone Online cheats for credits and 1000 DZO-points Hacks guide - We have discussed how to shift gears, brake, and accelerate - the challenge now is to complete all of these things at the right time and continuously. This is the goal you want to achieve in each race, but before we reach this goal, you will see different prompts, depending on your timing when shifting, breaking, and accelerating - your timing can be poor, good, good, great, or perfect, the better your timing, the faster you can achieve when surpassing other cars on the track. Your winning reward typically includes cash (the universal currency of the game) and Maddocks (resources used to purchase boxes). For the final game of the World Tour chapter, you will receive cash, Maddocks, and a free box that typically includes cash, diamonds (the game's premium currency), paint colors, and/or special parts you can use to customize your car. Drive Zone Online unlock all cars mod menu
+
+[Try now](https://sway.office.com/zHDWpAMvE1mwy4ZM)
